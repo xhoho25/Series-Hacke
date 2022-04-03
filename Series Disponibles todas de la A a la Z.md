@@ -1,9 +1,6 @@
 # Series-Hacke
 Todas las series disponibles en TG https://t.me/Hackeroto
 
-# series-Hacke
-Todas las series disponibles en TG https://t.me/Hackeroto
-
 7zip para descomprimir algunas series (https://t.me/c/1633781231/298) 
                         𝔰𝔢𝔯𝔦𝔢𝔰
 11.22.63 1ra temporada (https://t.me/c/1633781231/11)
@@ -72,5 +69,61 @@ A Christmas Carol 1ra Temporada (https://t.me/c/1633781231/424)
 
 A Series.of.Unfortunate.Events 1,2 y 3ra Temporada (https://t.me/c/1633781231/417)
 
+A.D The bible continues https://t.me/c/1633781231/428
 
+A Discovery Of Witches https://t.me/c/1633781231/430
+
+A Million Little Things https://t.me/c/1633781231/434
+
+A Teacher https://t.me/c/1633781231/442
+
+Absentia https://t.me/c/1633781231/443
+
+Acapulco https://t.me/c/1633781231/444
+
+Acquitted https://t.me/c/1633781231/446
+
+Agatha Christie-Poirot https://t.me/c/1633781231/450
+
+Alf https://t.me/c/1633781231/474
+
+Alias Grace https://t.me/c/1633781231/484
+
+All American  https://t.me/c/1633781231/486
+
+Altered Carbon https://t.me/c/1633781231/494
+
+All of Us Are Dead  https://t.me/c/1633781231/497
+
+Alfred Hitchcock Present  https://t.me/c/1633781231/500
+
+American Crime  https://t.me/c/1633781231/525
+
+Amazing Stories x 1  https://t.me/c/1633781231/530
+
+American Crime Story https://t.me/c/1633781231/536
+
+American Gothic https://t.me/c/1633781231/541
+
+American Gods  https://t.me/c/1633781231/543
+
+American Odyssey  https://t.me/c/1633781231/547
+
+American Horror Stories  https://t.me/c/1633781231/549
+ 
+American Rust  https://t.me/c/1633781231/550
+
+And Just Like That https://t.me/c/1633781231/552
+
+American Horror Story https://t.me/c/1633781231/554
+
+Anger Management  https://t.me/c/1633781231/569
+
+Anna Karenina https://t.me/c/1633781231/578
+
+Archive 81 https://t.me/c/1633781231/579
+
+Around the World in 80 Days https://t.me/c/1633781231/581
+
+Andromeda https://t.me/c/1633781231/586
 

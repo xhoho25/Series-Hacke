@@ -1,8 +1,8 @@
 # Series-Hacke
-Todas las series disponibles en TG https://t.me/Hackeroto
+Todas las 𝔰𝔢𝔯𝔦𝔢𝔰 disponibles en TG https://t.me/Hackeroto
 
-7zip para descomprimir algunas series (https://t.me/c/1633781231/298) 
-                        𝔰𝔢𝔯𝔦𝔢𝔰
+7zip para descomprimir algunas 𝔰𝔢𝔯𝔦𝔢𝔰 (https://t.me/c/1633781231/298) 
+                        
 
 11.22.63 1ra temporada (https://t.me/c/1633781231/11)
 
